@@ -6,4 +6,4 @@ Now who would like to introduce your favourite studios?
 
 What are your preferable abilities?
 
-Shark Yu is the fattest, he
+Shark Yu is the fattest
