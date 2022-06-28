@@ -9,3 +9,5 @@ What are your preferable abilities?
 Shark Yu is the fattest!
 
 I'm the fittest!
+
+And I'm also the lightest.
